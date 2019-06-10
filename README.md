@@ -1,2 +1,2 @@
 # BlindWaterMark
-for fun
+EMMMMMMM, SOMETIMES NOT EVEN REPRODUCTIVE
